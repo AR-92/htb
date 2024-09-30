@@ -1,0 +1,1 @@
+#Tier-2 #Easy #Offensive #Bug-Bounty-Hunter #Penetration-Tester #CREST-CCT-INF-Preparation

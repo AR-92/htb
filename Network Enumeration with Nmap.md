@@ -1,0 +1,1 @@
+#Tier-1 #Easy #Offensive #Penetration-Tester #Basic-Toolset #SOC-Analyst-Prerequisites #CREST-CCT-INF-Preparation

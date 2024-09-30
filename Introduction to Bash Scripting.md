@@ -1,0 +1,1 @@
+#Tier-1 #Easy #General #SOC-Analyst-Prerequisites
